@@ -1,16 +1,20 @@
 
-- Outstanding Graduate Award (CUMT), 2025.
+- National Scholarship, 2024.
 
-- National Scholarship for Graduate Student, 2024.
+- The President’s Award, 2024.
 
-- First-Prize Scholarship (CUMT), 2024.
+- Outstanding Graduation Thesis, 2025.
 
-- First-Prize Scholarship (CUMT), 2023.
+- The First Prize of Craftsmanship Star Award, 2023, 2024.
 
-- Freshman Scholarship (CUMT), 2022.
+- The First Prize for Outstanding Student Class Leader, 2023.
 
-- Outstanding Graduation Project Award (Jiangsu Province), 2022.
+- Research Innovation Award, 2023, 2024.
 
-- First-Prize Enterprise Scholarship (CUMT), 2020.
+- The First Prize of “Huashu Cup” China Undergraduate Mathematical Contest in Modeling, 2023.
 
-- First-Prize Scholarship (CUMT), 2019.
+- The Second Prize of the Guangdong Province Division of the National Undergraduate Mathematical Modeling Competition, 2023.
+
+- The Third prize of the “Challenge Cup” series of competitions (in the academic category), 2022.
+
+- The Silver Award of China International College Students Innovation Competition, 2024.
